@@ -1,0 +1,15 @@
+aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa
+aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa
+aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa
+aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa
+aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa
+aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa
+aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa
+aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa
+aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa
+aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa
+aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa
+aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa
+aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa
+aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa
+aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa aku adalah seorang mahasiswa
